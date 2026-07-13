@@ -1,2 +1,0 @@
-# WeliweriyaBestCabService
-# tuktukrental
